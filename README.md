@@ -1,3 +1,3 @@
 # Charminar
 Expermental for learning.....
-this is HYD speacials INDIA
+this is HYD speacials place.. in INDIA
